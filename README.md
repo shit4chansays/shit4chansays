@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center">
+   <img src="https://files.catbox.moe/l6scjj.png" alt="fourch loger"/>
+</p>
 
-<!--
-**shit4chansays/shit4chansays** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://files.catbox.moe/aqczpi.png" alt="cutiekins graphic" width="50%"/>
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+Lain & Pearl 
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://files.catbox.moe/9im8cv.png" alt="clover div width="200%"/>
+</p>
+
+***
+Despite being a 4chan ~~user~~ lurker O_o and enjoying the old internet aesthetic of it i try my best to be a positive person ^_^
+i just enjoy old internet a lot and /s4s/ oc culture and 4chan history is very interesting to me! I am VERY normal compared to others i prommy LOL
+If you wanna block / hide / unfriend me anyways thats ok i understand </3 
+***
+![tumblr_5a59f91cd9eec1be57a651ad48679f4b_53eb52d0_100](https://github.com/user-attachments/assets/99852cf8-2ae8-4429-a5d2-caae2317f4a5) ![nothing to fear](https://files.catbox.moe/thlh1l.png)
+
