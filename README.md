@@ -53,7 +53,11 @@ Heres some of my horses you might see me around as!!
 ***
 You are always welcome to cuddle / hide behind me!! ^_^ I like to give out random fortunes so if you want one just let me know! inspo from my horses is fine just dont copy them please O_o
  If you wanna know more about me check out my links :3 
+***
 
+<p align="center">
+   <img src="https://github.com/user-attachments/assets/56ff02b9-391e-4612-a89d-82ab0138ddbe" >
+</p>
 
 
 
