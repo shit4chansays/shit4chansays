@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-Lain & Pearl 
+🍀 Lain & Pearl 🍀
 </p>
 
 <p align="center">
@@ -50,7 +50,9 @@ Heres some of my horses you might see me around as!!
    <img src="https://github.com/user-attachments/assets/b726e175-0593-4563-8c81-20b02c9f8912" >
 </p>
 
-
+***
+You are always welcome to cuddle / hide behind me!! ^_^ I like to give out random fortunes so if you want one just let me know! inspo from my horses is fine just dont copy them please O_o
+ If you wanna know more about me check out my links :3 
 
 
 
