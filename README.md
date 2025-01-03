@@ -19,7 +19,7 @@ Despite being a 4chan ~~user~~ lurker O_o and enjoying the old internet aestheti
 i just enjoy old internet a lot and /s4s/ oc culture and 4chan history is very interesting to me! I am VERY normal compared to others i prommy LOL
 If you wanna block / hide / unfriend me anyways thats ok i understand </3 
 ***
-![tumblr_5a59f91cd9eec1be57a651ad48679f4b_53eb52d0_100](https://github.com/user-attachments/assets/99852cf8-2ae8-4429-a5d2-caae2317f4a5) ![nothing to fear](https://f2.toyhou.se/file/f2-toyhou-se/images/55783137_I2LKGY8me14FytK.png) ![dys0v6-a94d3f0e-c824-4e99-afd8-f40a5ed47aeb](https://github.com/user-attachments/assets/5e60d4f1-56ad-4a13-a137-6b6c7ee786cc) ![smile-dog-stamp-by-ratlinez-dg18y6z-fullview](https://github.com/user-attachments/assets/c3bdc04d-3d23-4e90-93a5-c2665d4b1a26)
+![tumblr_5a59f91cd9eec1be57a651ad48679f4b_53eb52d0_100](https://github.com/user-attachments/assets/99852cf8-2ae8-4429-a5d2-caae2317f4a5) ![nothing to fear](https://files.catbox.moe/7ejyik.png) ![dys0v6-a94d3f0e-c824-4e99-afd8-f40a5ed47aeb](https://github.com/user-attachments/assets/5e60d4f1-56ad-4a13-a137-6b6c7ee786cc) ![smile-dog-stamp-by-ratlinez-dg18y6z-fullview](https://github.com/user-attachments/assets/c3bdc04d-3d23-4e90-93a5-c2665d4b1a26)
  ![4chan_stamp_by_kyphoscoliosis_d2kt6is-fullview](https://github.com/user-attachments/assets/9b9e199b-45da-4d1f-adf1-35ccd8aaab27) ![4chan_lovely_place_for_friends_by_imfeelingstampity_d1e8ioo-fullview](https://github.com/user-attachments/assets/62e0ec9e-ff38-4ab0-b83c-866a218f08af) ![kil7nn](https://github.com/user-attachments/assets/e3ab7182-3153-4aec-ae29-15f1ac08825f)
  ![dbclb6g-3eb9f327-8446-4a7f-b324-e086192cd480](https://github.com/user-attachments/assets/e444b646-6d30-4ee9-bbf0-e4e1821b031e)
 ***
