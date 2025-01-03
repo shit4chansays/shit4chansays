@@ -24,8 +24,11 @@ If you wanna block / hide / unfriend me anyways thats ok i understand </3
  ![dbclb6g-3eb9f327-8446-4a7f-b324-e086192cd480](https://github.com/user-attachments/assets/e444b646-6d30-4ee9-bbf0-e4e1821b031e)
 ***
 <p align="center">
-<img src="https://github.com/user-attachments/assets/7e7ce36f-3131-49d1-97f5-d2c573c72a0e"/>
+<img src="https://github.com/user-attachments/assets/16a519bd-d35b-4f80-8998-a49d9ee7f479"/>
 </p>
+
+
+
 
 <p align="center">
 Heres some of my horses you might see me around as!!
@@ -57,7 +60,9 @@ You are always welcome to cuddle / hide behind me!! ^_^ I like to give out rando
 
 <p align="center">
    <img src="https://github.com/user-attachments/assets/56ff02b9-391e-4612-a89d-82ab0138ddbe" >
+<img src="https://github.com/user-attachments/assets/d7693f99-6572-4438-b77f-ad4de27cd3d3" >
 </p>
+
 
 
 
